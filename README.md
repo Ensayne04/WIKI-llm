@@ -1,0 +1,2 @@
+# WIKI
+Obsidian and xxx
